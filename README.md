@@ -1,11 +1,11 @@
-SustAInify Support
+EcoLenz Support
 
 For help or questions, please contact:  
 **Email:** sustainifyapp.contact@gmail.com  
 **FAQs:** Coming soon!
 
 Privacy Policy & Terms of Use
-Last updated: August 2025
+Last updated: December 2025
 
 Privacy Policy
 
